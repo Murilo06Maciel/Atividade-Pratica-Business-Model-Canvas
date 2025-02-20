@@ -1,1 +1,1 @@
-# Atividade-Pr-tica---Business-Model-Canvas
+# Atividade-Prática---Business-Model-Canvas
